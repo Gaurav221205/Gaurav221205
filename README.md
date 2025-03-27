@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Gaurav221205
 - 👀 I’m interested in Web Devolpment
-- 🌱 I’m currently learning Prodramming Language
+- 🌱 I’m currently learning Programming Language
 - 📫 How to reach me gmail:- microsoft221205@gmail.comm
